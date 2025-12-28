@@ -1,6 +1,24 @@
-# What-I-like-_-
-Basically the itty bitty is my skin is my current fixation, it flip flops so I’m not always in a consistent fandom.
+#                                                ***What I like***
 
-I like things like FNaF. DSaF, 1D, DC, Ghostbusters and the scream series. Honestly, there is a lot more I enjoy. 
+<img width="1232" height="924" alt="2025_12_28_037_Kleki" src="https://github.com/user-attachments/assets/eec83276-c1eb-4837-b042-753d29a43599" />
 
-I usually stick to kins, or well characters I just muse, I don't care if doubles interact at all bc in the grand scheme of things, it doesn't mmatter.
+
+ - FNaF
+ 
+ - DSaF
+ 
+ - Ghostbusters (all medias)
+
+ - Pokemon
+
+ - The Scream movies
+
+ - TADC
+
+ - Metal Gear Solid
+
+ - DC
+ 
+- Sonic series (i'm an avid sonamy/shadamy fan, I probs won't interact if you ship sonadow sorz :P)
+
+- Whatever I have as my skin, it's likely a current hyperfixation or another special interest of mine!!
