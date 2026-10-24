@@ -6,6 +6,10 @@
  - FNaF
  
  - DSaF
+
+ - Eddsworld
+
+ - Megaman
  
  - Ghostbusters (all medias)
 
